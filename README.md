@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Lili-pudzz
-- 👀 I’m interested in UGC
+- 👀 I’m interested in UGC✨
 - 🌱 I’m currently learning how to create UGC
 - 💞️ I’m looking to collaborate on Nothing :)
 - 📫 How to reach me ✨nothinggggg✨
